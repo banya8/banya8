@@ -1,4 +1,8 @@
 ## Hi there 👋
+ 📫 How to reach me: Instagram:_wildings_
+  😄 Pronouns: She/her
+  ⚡ Fun fact: I can handstand for 2mins(still workin on the last few seconds)
+ 
 
 <!--
 **banya8/banya8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

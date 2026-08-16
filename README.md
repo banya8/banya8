@@ -1,5 +1,7 @@
 ## Hi there 👋
-# 📫 How to reach me: Instagram:_wildings_
+# 📫 How to reach me----
+<br>
+Instagram:_wildings_
  # 😄 Pronouns: She/her
  #⚡ Fun fact: I can handstand for 2mins
  <br>

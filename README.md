@@ -1,7 +1,9 @@
 ## Hi there 👋
 # 📫 How to reach me: Instagram:_wildings_
  # 😄 Pronouns: She/her
- #⚡ Fun fact: I can handstand for 2mins(still workin on the last few seconds)
+ #⚡ Fun fact: I can handstand for 2mins
+ <br>
+ (still workin on the last few seconds)
  
 
 <!--
